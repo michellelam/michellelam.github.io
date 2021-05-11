@@ -11,14 +11,4 @@ redirect_from:
 About
 ======
 
-I am PhD candidate at the University of Michigan, Ann Arbor. My interests are in International Trade, Urban Economics, and Labor. 
-
-Research
-======
-
-Work in progress. 
-
-CV
-======
-
-Work in progress. 
+I am an Economics PhD candidate at the University of Michigan, Ann Arbor. My interests are in International Trade, Urban Economics, and Labor. 
