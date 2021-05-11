@@ -85,8 +85,8 @@ author:
   bio              : "Economics PhD Candidate at the University of Michigan"
   location         : "Ann Arbor, MI"
   employer         :
-  pubmed           : " "
-  googlescholar    : " "
+  pubmed           : 
+  googlescholar    : 
   email            : "msll@umich.edu"
   researchgate     :  # example: "https://www.researchgate.net/profile/yourprofile"
   uri              :
