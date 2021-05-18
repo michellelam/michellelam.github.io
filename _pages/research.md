@@ -7,7 +7,7 @@ author_profile: true
 
 **Implications of Zoning on Urban Gentrification**
 
-**Impact of the Ancient Silk Road on Modern Development** with Mos Laoprassorn 
+**Impact of the Ancient Silk Road on Modern Development** joint with Mos Laoprassorn 
 
 **Heterogeneous Effects of Trade Agreement Topics Over Time** joint with Dyanne Vaught
 
