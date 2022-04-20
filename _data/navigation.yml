@@ -3,9 +3,6 @@ main:
   - title: "Research"
     url: /research/
     
-  - title: "Teaching"
-    url: /teaching/    
-    
  # - title: "Talks"
  #   url: /talks/    
 
@@ -18,6 +15,9 @@ main:
     
   - title: "CV"
     url: /files/cv_github.pdf
+    
+  - title: "Teaching"
+    url: /teaching/    
 
 #  - title: "Guide"
 #    url: /markdown/
