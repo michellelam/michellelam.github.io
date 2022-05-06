@@ -5,6 +5,8 @@ permalink: /teaching/
 author_profile: true
 ---
 
+### Research Mentor, Undergraduate Research Opportunity Program (2020-2021)
+ 
 ### Head Graduate Student Instructor
 
 ECON402, Intermediate Economics, Undergraduate (Winter 2019, Fall 2019, Winter 2021)
