@@ -16,8 +16,8 @@ main:
   - title: "CV"
     url: /files/cv_github.pdf
     
-  - title: "Teaching"
-    url: /teaching/    
+#  - title: "Teaching"
+#    url: /teaching/    
 
   - title: "Carillon"
     url: /carillon/
