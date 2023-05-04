@@ -1,7 +1,7 @@
 ---
 title: 'Practical Tips for the Economics Job Market'
 date: 2023-05-04
-permalink: /posts/2023/05/jm_tips
+permalink: /posts/jm_tips
 tags:
 ---
 
