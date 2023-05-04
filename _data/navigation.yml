@@ -21,3 +21,6 @@ main:
 
   - title: "Carillon"
     url: /carillon/
+
+  - title: "Resources"
+    url: /_posts/    
