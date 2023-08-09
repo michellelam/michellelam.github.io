@@ -5,6 +5,7 @@ permalink: /research/
 author_profile: true
 ---
 
+
 As of August 2023, please email msll[at]umich[dot]com for a draft. 
 
 **Implications of Zoning for Urban Gentrification in New York City**
