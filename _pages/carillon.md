@@ -19,7 +19,7 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 
 - Practice time at Netherlands Carillon: most Sundays from 12-1pm EST, available for meet & greet afterwards 
 - Thursday, June 27, 2024, 12:00-12:45pm EST; Metropolitan United Church in Toronto, Canada
-- Sunday, July 21, 2024: 12:00-12:30pm EST; Baker Park Carillon in Frederick, MD 
+- Sunday, July 21, 2024, 12:00-12:30pm EST; Baker Park Carillon in Frederick, MD 
 - Saturday, September 21, 2024; 6-7pm EST; Netherlands Carillon in Arlington, VA
 
 ## North American Carillon Community Survey (2023) 
