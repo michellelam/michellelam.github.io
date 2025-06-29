@@ -18,7 +18,8 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 ## Recitals 
 
 ### 2025
-- Practice time at Netherlands Carillon: most Sundays from 12-1pm EST, available for meet & greet afterwards
+- Practice time at Netherlands Carillon: most Sundays from 12-1pm EST
+  - Pieces du jour, no set repertoire!
 - Wednesday, May 14, 9:30-10:00am EST at **National Cathedral in Washington, DC** for the funeral of Alexis Herman
   - [Program](https://cathedral.org/wp-content/uploads/2025/05/Herman-Alexis_R1.pdf)
 - Saturday, August 3, 7:00-8:00pm EST at **Salisbury University in Salisbury, MD**
