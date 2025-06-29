@@ -21,12 +21,18 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 - Practice time at Netherlands Carillon: most Sundays from 12-1pm EST, available for meet & greet afterwards
 - Wednesday, May 14, 9:30-10:00am EST at **National Cathedral in Washington, DC** for the funeral of Alexis Herman
   - [Program](https://cathedral.org/wp-content/uploads/2025/05/Herman-Alexis_R1.pdf)
-- Saturday, August 3, 7:00-8:00pm EST at **Salisbury University in Salisbury, MD** 
+- Saturday, August 3, 7:00-8:00pm EST at **Salisbury University in Salisbury, MD**
+  - [Program](https://docs.google.com/document/d/19gUoVQtyTy50Fy5CNL0WFmyhnyh3J1vGUOOngi0vx3s/edit?usp=sharing)
 - Sunday, August 3, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
+  - [Program]()
 - Wednesday, August 6, 7:00-7:45pm EST at **Calvary Episcopal Church in Williamsville, NY**
+  - [Program](https://docs.google.com/document/d/1pAOQKsjq4D1DsCmE43pJzPtESheDj1ZpLy8zQH0d9Us/edit?usp=sharing)
 - Thursday, August 7, 7:00-8:00pm EST **Penn State Behrend in Erie, PA**
+  - [Program](https://docs.google.com/document/d/122vQwpH4C4tod41zmRf3N3PJv1DIYVKozRslax0Eo9Y/edit?usp=sharing)
 - Friday, August 8, 12:00-1:00pm EST at **Westminster College in New Wilmington, PA**
+  - [Program](https://docs.google.com/document/d/1_ZE41w89YOTiKlTcMrt4QhFgjxJa2PXRhVP176cQDhI/edit?usp=sharing)
 - Monday, August 11, 6:30-7:30pm EST at **University of Rochester in Rochester, NY**
+  - [Program](https://docs.google.com/document/d/1HV9fKhvSOb35fomoLt0rE92mEwvpVrgBoODuLG-GPDg/edit?usp=sharing)
 - Sunday, September 28, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
 
 ### 2024
