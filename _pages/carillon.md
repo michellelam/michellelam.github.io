@@ -42,6 +42,6 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 - Sunday, July 21, 12:00-12:30pm EST at **Baker Park Carillon in Frederick, MD**
 - Saturday, September 21; 6-7pm EST at **Netherlands Carillon in Arlington, VA**
 
-## North American Carillon Community Survey (2020--2025) 
+## North American Carillon Community Survey (2020-2025) 
 
 For information and downloadable results from the North American Carillon Community Survey, please visit this [repository](https://github.com/michellelam/carilloncommunity). The full article may be downloaded in the [Bulletin here (must be a GCNA member to access)](https://www.gcna.org/resources/Members/Bulletin/GCNA-Bulletin-V74.pdf). If you do not have access and you'd like to have a copy, please email msll@umich.edu to request a copy. The survey was developed in conjunction with Dr. Elisa Tersigni and was the recipient of a 2020 GCNA Barnes Grant.
