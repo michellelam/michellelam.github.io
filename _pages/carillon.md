@@ -45,3 +45,7 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 ## North American Carillon Community Survey (2020-2025) 
 
 For information and downloadable results from the North American Carillon Community Survey, please visit this [repository](https://github.com/michellelam/carilloncommunity). The full article may be downloaded in the [Bulletin here (must be a GCNA member to access)](https://www.gcna.org/resources/Members/Bulletin/GCNA-Bulletin-V74.pdf). If you do not have access and you'd like to have a copy, please email msll@umich.edu to request a copy. The survey was developed in conjunction with Dr. Elisa Tersigni and was the recipient of a 2020 GCNA Barnes Grant.
+
+## A Century of Women and the Carillon: Firsts 
+
+Dr. Lam refined and edited the timeline, ["Firsts"](https://umich.maps.arcgis.com/apps/MapSeries/index.html?appid=579aedff21e44777853b91395c311014), for the project "A Century of Women and the Carillon" (developed and led by Tiffany Ng, Audrey Dye, and Scott Orr). The timeline features 50 women and celebrates their milestones with multimedia content. 
