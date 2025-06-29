@@ -13,7 +13,7 @@ Dr. Lam is a seasoned performer in both secular and sacred settings. She was the
 
 Dr. Lam's recitals and work in the carillon community focus on highlighting people of color, women, and lesser played works. Selected programs for past recitals may be found here at [this link](https://docs.google.com/document/d/1yBbaaqsHExDU1md3aXO9Nh0Cq2Sysf_wvTN4HS9HIag/edit?usp=sharing). Some recordings are available on [YouTube](https://www.youtube.com/playlist?list=PL9rENzxh-Bm7Jh1IHHb4N5-jUKiyFOsxD) and [Soundcloud](https://soundcloud.com/michelleslam). With her wide-ranging repertoire, Dr. Lam is available for concerts and special events (e.g., sacred observances, wedding, celebrations) throughout the year; please contact msll@umich.edu for further details.
 
-Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North America's Finance Committee since 2023, and was elected to the Board of Directors in 2024. 
+Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North America's Finance Committee since 2023, and was elected to the [Board of Directors](https://www.gcna.org/leadership) in 2024. 
 
 ## Recitals 
 
