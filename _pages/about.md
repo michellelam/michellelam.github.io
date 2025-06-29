@@ -11,7 +11,5 @@ redirect_from:
 About
 ======
 
-I am an Economist at Bates White Economics Consulting in the Antitrust practice. 
-
-I received my Economics PhD from the University of Michigan, Ann Arbor in 2023. My research interests are in International Trade, Labor, and Urban Economics. 
+I am a Senior Economist at Bates White Economics Consulting in the Antitrust practice. I received my Economics PhD (trade, labor) from the University of Michigan, Ann Arbor in 2023. 
 
