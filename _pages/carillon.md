@@ -23,7 +23,7 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 - Sunday, April 20 at **Annuncation Catholic Church in Washington, DC** for Easter 
 - Wednesday, May 14, 9:30-10:00am EST at **National Cathedral in Washington, DC** for the funeral of Alexis Herman
   - [Program](https://cathedral.org/wp-content/uploads/2025/05/Herman-Alexis_R1.pdf)
-- Saturday, August 3, 7:00-8:00pm EST at **Salisbury University in Salisbury, MD**
+- Saturday, August 2, 7:00-8:00pm EST at **Salisbury University in Salisbury, MD**
   - [Program](https://docs.google.com/document/d/19gUoVQtyTy50Fy5CNL0WFmyhnyh3J1vGUOOngi0vx3s/edit?usp=sharing)
 - Sunday, August 3, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
   - [Program](https://docs.google.com/document/d/1bAP5HCIb6jvReygXLpryfzqQ_zT6LiMSpYg1zAyl0zc/edit?usp=sharing)
