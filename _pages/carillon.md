@@ -24,17 +24,16 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 ### 2025
 
 - Sunday, April 20 at **Annuncation Catholic Church in Washington, DC** for Easter 
-- Wednesday, May 14, 9:30-10:00am EST at **National Cathedral in Washington, DC** for the funeral of Alexis Herman
-- Saturday, August 2, 7:00-8:00pm EST at **Salisbury University in Salisbury, MD**
-- Sunday, August 3, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
-- Wednesday, August 6, 7:00-7:45pm EST at **Calvary Episcopal Church in Williamsville, NY**
-- Thursday, August 7, 7:00-8:00pm EST **Penn State Behrend in Erie, PA**
-- Friday, August 8, 12:00-1:00pm EST at **Westminster College in New Wilmington, PA**
-- Monday, August 11, 6:30-7:30pm EST at **University of Rochester in Rochester, NY**
-- Sunday, September 28, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
-- Sunday, September 28, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
-- Sunday, November 9, 3:00-4:00pm EST at **Mercersburg Academy in Mercersburg, PA**
-- Monday, December 8, 1:15-1:45pm EST at **National Shrine of the Immaculate Conception in Washington, DC** for Feast of the Immaculate Conception
+- Wednesday, May 14 at **National Cathedral in Washington, DC** for the funeral of Alexis Herman
+- Saturday, August 2 at **Salisbury University in Salisbury, MD**
+- Sunday, August 3 at **Netherlands Carillon in Arlington, VA**
+- Wednesday, August 6 at **Calvary Episcopal Church in Williamsville, NY**
+- Thursday, August 7 **Penn State Behrend in Erie, PA**
+- Friday, August 8 at **Westminster College in New Wilmington, PA**
+- Monday, August 11 at **University of Rochester in Rochester, NY**
+- Sunday, September 28 at **Netherlands Carillon in Arlington, VA**
+- Sunday, November 9 at **Mercersburg Academy in Mercersburg, PA**
+- Monday, December 8 at **National Shrine of the Immaculate Conception in Washington, DC** for Feast of the Immaculate Conception
 
 ### 2024
 - Thursday, June 27, 12:00-12:45pm EST at **Metropolitan United Church in Toronto, Canada**
