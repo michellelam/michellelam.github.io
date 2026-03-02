@@ -34,7 +34,7 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 - Sunday, September 28, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
 - Sunday, September 28, 3:00-4:30pm EST at **Netherlands Carillon in Arlington, VA**
 - Sunday, November 9, 3:00-4:00pm EST at **Mercersburg Academy in Mercersburg, PA**
-- Monday, December 8, 1:15-1:45pm EST [Feast of the Immaculate Conception] at **National Shrine of the Immaculate Conception in Washington, DC**
+- Monday, December 8, 1:15-1:45pm EST at **National Shrine of the Immaculate Conception in Washington, DC** for Feast of the Immaculate Conception
 
 ### 2024
 - Thursday, June 27, 12:00-12:45pm EST at **Metropolitan United Church in Toronto, Canada**
