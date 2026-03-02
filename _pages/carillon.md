@@ -36,9 +36,9 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 - Monday, December 8 at **National Shrine of the Immaculate Conception in Washington, DC** for Feast of the Immaculate Conception
 
 ### 2024
-- Thursday, June 27, 12:00-12:45pm EST at **Metropolitan United Church in Toronto, Canada**
-- Sunday, July 21, 12:00-12:30pm EST at **Baker Park Carillon in Frederick, MD**
-- Saturday, September 21; 6-7pm EST at **Netherlands Carillon in Arlington, VA**
+- Thursday, June 27 at **Metropolitan United Church in Toronto, Canada**
+- Sunday, July 21 at **Baker Park Carillon in Frederick, MD**
+- Saturday, September 21 at **Netherlands Carillon in Arlington, VA**
 
 ## North American Carillon Community Survey (2020-2025) 
 
