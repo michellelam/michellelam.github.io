@@ -7,7 +7,7 @@ author_profile: true
 
 ## Biography 
 
-Michelle S. Lam is an Associate Carillonneur at the Netherlands Carillon in Arlington, VA and the National Shrine of the Immaculate Conception in Washington, DC. 
+Michelle S. Lam is an Associate Carillonneur at the Netherlands Carillon in Arlington, VA and at the National Shrine of the Immaculate Conception in Washington, DC. 
 
 Dr. Lam is a seasoned performer in both secular and sacred settings. She was the resident carillonist at [Grosse Pointe Memorial Church](https://gpmchurch.org/) in Grosse Pointe Farms, MI from 2019-2023, played weekly recitals at the [University of Michigan Baird and Lurie carillons](https://smtd.umich.edu/departments/organ/carillons/), and continues to perform regularly in the greater Washington, DC area. Dr. Lam is also an alumna of the [Wellesley College Guild of Carillonneurs](https://www.wellesley.edu/music/performanceprogram/ensembles/carillon), and thus is familiar with programming creatively for small carillons. She passed the [GCNA Carillonneur Exam](https://www.gcna.org/exam-carillonneur) in 2022. 
 
