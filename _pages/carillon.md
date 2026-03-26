@@ -20,6 +20,7 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 ### 2026 
 - Practice time at Netherlands Carillon: most Sundays from 12-1pm EST
   - Pieces du jour, no set repertoire!
+- Saturday, April 11, 6-7pm at **Netherlands Carillon** for Tulip Festival
 - Sunday, July 19, 1-2pm at **Princeton University**
 - Monday, July 20, 7:30-8:30pm at **First United Methodist Church of Germantown**
 - Tuesday, July 21, 7-8pm at **St. Thomas' Episcopal Church, Whitemarsh**
