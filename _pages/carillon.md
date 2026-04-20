@@ -5,6 +5,12 @@ permalink: /carillon/
 author_profile: true
 ---
 
+## Jump to: 
+* [Biography](#biography)
+* [Recitals](#recitals)
+* [North American Carillon Community Survey](#north-american-carillon-community-survey-2020-2025)
+* [A Century of Women and the Carillon](#a-century-of-women-and-the-carillon-firsts)
+
 ## Biography 
 
 Michelle S. Lam is an Associate Carillonneur at the Netherlands Carillon in Arlington, VA and at the National Shrine of the Immaculate Conception in Washington, DC. Dr. Lam's recitals and work in the carillon community focus on highlighting people of color, women, and lesser played works. **[Selected programs for past recitals may be found here at this link](https://docs.google.com/document/d/1yBbaaqsHExDU1md3aXO9Nh0Cq2Sysf_wvTN4HS9HIag/edit?usp=sharing)**. 
