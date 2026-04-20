@@ -9,23 +9,35 @@ author_profile: true
 
 Michelle S. Lam is an Associate Carillonneur at the Netherlands Carillon in Arlington, VA and at the National Shrine of the Immaculate Conception in Washington, DC. 
 
-Dr. Lam is a seasoned performer in both secular and sacred settings. She was the resident carillonist at [Grosse Pointe Memorial Church](https://gpmchurch.org/) in Grosse Pointe Farms, MI from 2019-2023, played weekly recitals at the [University of Michigan Baird and Lurie carillons](https://smtd.umich.edu/departments/organ/carillons/), and continues to perform regularly in the greater Washington, DC area. Dr. Lam is also an alumna of the [Wellesley College Guild of Carillonneurs](https://www.wellesley.edu/music/performanceprogram/ensembles/carillon), and thus is familiar with programming creatively for small carillons. She passed the [GCNA Carillonneur Exam](https://www.gcna.org/exam-carillonneur) in 2022. 
+Dr. Lam's recitals and work in the carillon community focus on highlighting people of color, women, and lesser played works. **[Selected programs for past recitals may be found here at this link](https://docs.google.com/document/d/1yBbaaqsHExDU1md3aXO9Nh0Cq2Sysf_wvTN4HS9HIag/edit?usp=sharing)**. 
 
-Dr. Lam's recitals and work in the carillon community focus on highlighting people of color, women, and lesser played works. **[Selected programs for past recitals may be found here at this link](https://docs.google.com/document/d/1yBbaaqsHExDU1md3aXO9Nh0Cq2Sysf_wvTN4HS9HIag/edit?usp=sharing)**. Some recordings are available on [YouTube](https://www.youtube.com/playlist?list=PL9rENzxh-Bm7Jh1IHHb4N5-jUKiyFOsxD) and [Soundcloud](https://soundcloud.com/michelleslam). With her wide-ranging repertoire, Dr. Lam is available for concerts and special events (e.g., sacred observances, wedding, celebrations) throughout the year; please contact msll@umich.edu.
+<details>
+  
+<summary>Read more</summary>
+  
+Dr. Lam is a seasoned performer in both secular and sacred settings. She was the resident carillonist at [Grosse Pointe Memorial Church](https://gpmchurch.org/) in Grosse Pointe Farms, MI from 2019-2023, played weekly recitals at the [University of Michigan Baird and Lurie carillons](https://smtd.umich.edu/departments/organ/carillons/), and continues to perform regularly in the greater Washington, DC area. Dr. Lam is also an alumna of the [Wellesley College Guild of Carillonneurs](https://www.wellesley.edu/music/performanceprogram/ensembles/carillon), and thus is familiar with programming creatively for small carillons. She passed the [GCNA Carillonneur Exam](https://www.gcna.org/exam-carillonneur) in 2022. Some recordings are available on [YouTube](https://www.youtube.com/playlist?list=PL9rENzxh-Bm7Jh1IHHb4N5-jUKiyFOsxD) and [Soundcloud](https://soundcloud.com/michelleslam). With her wide-ranging repertoire, Dr. Lam is available for concerts and special events (e.g., sacred observances, wedding, celebrations) throughout the year; please contact msll@umich.edu.
 
 Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North America's Finance Committee since 2023, and was elected to the [Board of Directors](https://www.gcna.org/leadership) in 2024. 
+
+</details>
 
 ## Recitals 
 
 ### 2026 
 - Practice time at Netherlands Carillon: most Sundays from 12-1pm EST
   - Pieces du jour, no set repertoire!
-- Saturday, April 11, 6-7pm at **Netherlands Carillon** for Tulip Festival
-- Sunday, July 19, 1-2pm at **Princeton University**
-- Monday, July 20, 7:30-8:30pm at **First United Methodist Church of Germantown**
-- Tuesday, July 21, 7-8pm at **St. Thomas' Episcopal Church, Whitemarsh**
+- April 11-12, 6-7pm at **Netherlands Carillon in Arlington, VA** for Tulip Festival
+- Sunday, July 5, 5:30-6pm at **National Shrine in Washington, DC**
+- Sunday, July 12, 5:30-6pm at **National Shrine in Washington, DC**
+- Sunday, July 19, 1-2pm at **Princeton University, in Princeton, NJ**
+- Monday, July 20, 7:30-8:30pm at **First United Methodist Church of Germantown in Philadelphia, PA**
+- Tuesday, July 21, 7-8pm at **St. Thomas' Episcopal Church, Whitemarsh in Fort Washington, PA**
 - Wednesday, July 22, 7:30-8:30pm at **Valley Forge National Historical Park**
-- Friday, July 24, 7-8pm at **McDonogh School**
+- Friday, July 24, 7-8pm at **McDonogh School in Owings Mills, MD**
+- Sunday, August 2, 5:30-6pm at **National Shrine in Washington, DC**
+- Saturday, August 8, 6-7pm at **Netherlands Carillon in Arlington, VA**
+- Sunday, August 9, 12:30-1pm at **Baker Park in Frederick, MD**
+- Friday, September 11, 6-6:30pm at **Longwood Gardens in Kennett Square, PA**
 
 ### 2025
 
