@@ -26,17 +26,27 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
   - Pieces du jour, no set repertoire!
 - April 11-12 at **Netherlands Carillon in Arlington, VA** for Tulip Festival 
 - Sunday, July 5, 5:30-6pm at **National Shrine in Washington, DC**
-  - [Program](../files/Michelle-Lam-20260705-National-Shrine.pdf). 
+  - [Program](../files/Michelle-Lam-20260705-National-Shrine.pdf)
 - Sunday, July 12, 5:30-6pm at **National Shrine in Washington, DC**
+  - [Program](../files/Michelle-Lam-20260712-National-Shrine.pdf)
 - Sunday, July 19, 1-2pm at **Princeton University, in Princeton, NJ**
+  - [Program](../files/Michelle-Lam-20260719-Princeton.pdf)
 - Monday, July 20, 7:30-8:30pm at **First United Methodist Church of Germantown in Philadelphia, PA**
+  - [Program](../files/Michelle-Lam-20260720-FUMCOG.pdf)
 - Tuesday, July 21, 7-8pm at **St. Thomas' Episcopal Church, Whitemarsh in Fort Washington, PA**
+  - [Program](https://github.com/michellelam/michellelam.github.io/blob/3107377a46ecf204abd42584b70a101750f54f09/files/Michelle-Lam-20260721-St.%20Thomas.pdf)
 - Wednesday, July 22, 7:30-8:30pm at **Valley Forge National Historical Park**
+  - [Program](../files/Michelle-Lam-20260722-Valley-Forge.pdf)
 - Friday, July 24, 7-8pm at **McDonogh School in Owings Mills, MD**
+  - [Program](../files/Michelle-Lam-20260724-McDonogh.pdf)
 - Sunday, August 2, 5:30-6pm at **National Shrine in Washington, DC**
+  - [Program](../files/Michelle-Lam-20260802-National-Shrine.pdf)
 - Saturday, August 8, 6-7pm at **Netherlands Carillon in Arlington, VA**
+  - [Program](../files/Michelle-Lam-20260808-Netherlands.pdf)
 - Sunday, August 9, 12:30-1pm at **Baker Park in Frederick, MD**
+  - [Program](../files/Michelle-Lam-20260809-Frederick.pdf)
 - Friday, September 11, 6-6:30pm at **Longwood Gardens in Kennett Square, PA**
+  - [Program](../files/Michelle-Lam-20260911-Longwood-Gardens.pdf)
 
 ### 2025
 
