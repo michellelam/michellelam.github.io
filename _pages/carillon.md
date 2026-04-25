@@ -50,22 +50,13 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 
 ### 2025
 
-- Sunday, April 20 at **Annuncation Catholic Church in Washington, DC** for Easter 
-- Wednesday, May 14 at **National Cathedral in Washington, DC** for the funeral of Alexis Herman
-- Saturday, August 2 at **Salisbury University in Salisbury, MD**
-- Sunday, August 3 at **Netherlands Carillon in Arlington, VA**
-- Wednesday, August 6 at **Calvary Episcopal Church in Williamsville, NY**
-- Thursday, August 7 **Penn State Behrend in Erie, PA**
-- Friday, August 8 at **Westminster College in New Wilmington, PA**
-- Monday, August 11 at **University of Rochester in Rochester, NY**
-- Sunday, September 28 at **Netherlands Carillon in Arlington, VA**
-- Sunday, November 9 at **Mercersburg Academy in Mercersburg, PA**
-- Monday, December 8 at **National Shrine of the Immaculate Conception in Washington, DC** for Feast of the Immaculate Conception
+- **Upstate NY, PA**: Calvary Episcopal Church, Penn State Behrend, University of Rochester, Westminster College
+- **Greater Washington, DC**: Annunciation Catholic Church, Mercersburgh Academy, National Cathedral, National Shrine, Netherlands Carillon, Salisbury University
 
 ### 2024
-- Thursday, June 27 at **Metropolitan United Church in Toronto, Canada**
-- Sunday, July 21 at **Baker Park Carillon in Frederick, MD**
-- Saturday, September 21 at **Netherlands Carillon in Arlington, VA**
+
+- **Toronto**: Metropolitan United Church
+- **Greater Washington, DC**: Baker Park (Frederick, MD), Netherlands Carillon 
 
 ## North American Carillon Community Survey (2020-2025) 
 
