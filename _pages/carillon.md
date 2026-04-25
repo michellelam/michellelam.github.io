@@ -50,6 +50,7 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 
 ### 2025
 
+- **Kansas**: University of Kansas, Lawrence
 - **Upstate NY, PA**: Calvary Episcopal Church, Penn State Behrend, University of Rochester, Westminster College
 - **Greater Washington, DC**: Annunciation Catholic Church, Mercersburgh Academy, National Cathedral, National Shrine, Netherlands Carillon, Salisbury University
 
