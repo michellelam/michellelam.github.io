@@ -34,7 +34,7 @@ Dr. Lam has served as the co-chair of the Guild of Carillonneurs of North Americ
 - Monday, July 20, 7:30-8:30pm at **First United Methodist Church of Germantown in Philadelphia, PA**
   - [Program](../files/Michelle-Lam-20260720-FUMCOG.pdf)
 - Tuesday, July 21, 7-8pm at **St. Thomas' Episcopal Church, Whitemarsh in Fort Washington, PA**
-  - [Program](https://github.com/michellelam/michellelam.github.io/blob/3107377a46ecf204abd42584b70a101750f54f09/files/Michelle-Lam-20260721-St.%20Thomas.pdf)
+  - [Program](https://michelleslam.com/files/Michelle-Lam-20260721-St.%20Thomas.pdf)
 - Wednesday, July 22, 7:30-8:30pm at **Valley Forge National Historical Park**
   - [Program](../files/Michelle-Lam-20260722-Valley-Forge.pdf)
 - Friday, July 24, 7-8pm at **McDonogh School in Owings Mills, MD**
